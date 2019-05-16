@@ -1,3 +1,5 @@
 # SaveTheEarth
 Spider Task 1, 
 Thor (Thor Odinson) is a fictional superhero appearing in American comic books published by Marvel Comics. The character, which is based on the Norse deity of the same name, is the Asgardian god of thunder who possesses the enchanted hammer, Mjolnir, which grants him the ability to fly and manipulate weather amongst his other superhuman attributes.
+
+The character was first portrayed in live action by Eric Allan Kramer in the 1988 television movie The Incredible Hulk Returns. Chris Hemsworth portrays Thor Odinson in the Marvel Cinematic Universe films Thor (2011), The Avengers (2012), Thor: The Dark World (2013), Avengers: Age of Ultron (2015), Doctor Strange (2016) in a cameo, Thor: Ragnarok (2017), Avengers: Infinity War (2018), and Avengers: Endgame (2019). Additionally, archival footage of Hemsworth as Thor was used in the 2013 episodes "Pilot" and "The Well" of Marvel's Agents of S.H.I.E.L.D.[1][2] Thor placed 14th on IGN's list of "Top 100 Comic Book Heroes of All Time" in 2011,[3] and first in their list of "The Top 50 Avengers" in 2012.[4]
